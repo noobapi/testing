@@ -1,1 +1,2 @@
-Once apon a time in a forest there lived a money, who resided on a tree, which was on the bank of a river. In the same forest there lived a crocodile and his wife.
+Once apon a time in a forest there lived a money, who resided on a tree, which was on the bank of a river. In the same forest there lived a crocodile and his wife. 
+One day crocodile came to the bank river and rested under the tree. the kind hearted monkey offered him some fruits. the crocodile came back the next next day for more fruits as he liked them. As days passes by they both became good friends.
